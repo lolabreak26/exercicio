@@ -1,0 +1,2 @@
+# exercicio
+exerci d ip
